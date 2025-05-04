@@ -1,2 +1,0 @@
-# takahironakamori.github.io
-website
